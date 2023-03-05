@@ -1,1 +1,1 @@
-https://gvl7178.github.io/FSWD.github.io/
+https://gvl7178.github.io/Educationeventsite.github.io/
